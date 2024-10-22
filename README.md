@@ -6,5 +6,4 @@
 - Caso tenha alguma sujestão de melhoria ou estudo vou deixar meu contato abaixo
 
 - Obrigado pela atenção 
-- Instagram: _zerbietii
 - Linkedin: https://www.linkedin.com/in/moyses-zerbieti/
