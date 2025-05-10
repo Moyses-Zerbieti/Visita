@@ -7,3 +7,6 @@
 
 - Obrigado pela atenção 
 - Linkedin: https://www.linkedin.com/in/moyses-zerbieti/
+
+- https://moyses-zerbieti.github.io/Visita/
+- link do projeto em funcionamento
